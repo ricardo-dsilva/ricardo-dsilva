@@ -1,4 +1,4 @@
-👋 Hi, I’m @ricardo-dsilva
+👽 Trying to learn new things 
 
 
 <!---
